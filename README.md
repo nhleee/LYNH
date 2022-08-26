@@ -1,1 +1,1 @@
-# LYNH
+# LYNH.github.io
